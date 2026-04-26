@@ -1,1 +1,1 @@
-# Schema_Sqard-Informatica-_Team_8
+# Schema_Squad-Informatica-_Team_8
